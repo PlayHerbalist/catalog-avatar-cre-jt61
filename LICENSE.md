@@ -1,4 +1,4 @@
-
+Experience pull lucky blocks like never before with instant pull lucky blocks Script, the #1 Script. Includes speed and teleport for unbeatable
 
 
 
